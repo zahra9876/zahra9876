@@ -2,7 +2,7 @@
 
 <img src="./212747903-e9bdf048-2dc8-41f9-b973-0e72ff07bfba.gif" width="100%" alt="Header"/>
 
-# Hi there, I'm Solo! 👾 <img src="./325895973-e4f28204-ea88-4364-a321-8330c3fbde6a.gif" width="35" />
+# Hi there, I'm Zahra! 👾 <img src="./325895973-e4f28204-ea88-4364-a321-8330c3fbde6a.gif" width="35" />
 
 </div>
 
